@@ -1,2 +1,2 @@
 # cacophony
-quick before the hyenas come!
+quick, before the hyenas come!
