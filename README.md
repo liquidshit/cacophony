@@ -1,5 +1,5 @@
 # cacophony
-Recently stumbled upon an old hdd with some songs I wrote for a punk around 2000-2004... 135 .mid-files to  be exact.
+Recently stumbled upon an old hdd with some songs I wrote for a punk rock band back in 2000-2004... 135 .mid-files to  be exact.
 
 No mixing what so ever. 
 Instrument levels like loud drums in some places if I'm not mistaken.
